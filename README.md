@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **razeev198@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Amv2zACQuvt4Uoky10I-76i3SLIj0ytB/view?usp=share_link](https://drive.google.com/file/d/1Amv2zACQuvt4Uoky10I-76i3SLIj0ytB/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Amv2zACQuvt4Uoky10I-76i3SLIj0ytB/view?usp=share_link](https://drive.google.com/file/d/1wM45QWnVMo7UAjRaNzUStQ4NJbCUB99B/view?usp=sharing)
 
 - ⚡ Fun fact **Fun fact I am Funny yar, but not sure...**
 
